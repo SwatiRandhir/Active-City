@@ -1,0 +1,2 @@
+# Active-City
+Active City is developing in Warsaw at Installation street 5. This small, six-stores building, consist of 128 residential units 1,2 and 3-room apartments, varying in size from 30 to 75 m 2 and part of the service on the ground floor. Under the building is underground parking with 143 parking spaces. Right next to the building will be located safe playground. For comfort and safety of residents the building will be fenced and s covered cameras.    
